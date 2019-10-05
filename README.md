@@ -1,2 +1,2 @@
 # Tahak NA "CECKO"
-## jednoduchej tahak na jazyk C :shipit:
+## jednoduchej tahak na jazyk C :+1:
